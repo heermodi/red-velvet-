@@ -1,0 +1,1 @@
+Once the butter and sugar are creamed together, you’ll beat in two eggs until well combined. Then mix in the rest of the wet ingredients: some oil, red food coloring, vanilla extract, and distilled white vinegar. The oil helps to keep the cake incredibly moist, so I use a combination of butter and oil in this cake.
